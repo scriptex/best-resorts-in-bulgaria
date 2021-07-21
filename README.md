@@ -14,12 +14,12 @@ As it appears [on Facebook](https://www.facebook.com/groups/1719529994935445/per
 
 ## Albena
 
+1. https://albena.bg/bg/maritim-hotel-paradise-blue?gclid=CjwKCAjwwqaGBhBKEiwAMk-FtO-JOm8k-JvjLxSrgReExUvjKeCPhBR8KskuOe5zeDVw6EnWRSCyShoCu3sQAvD_BwE
+
 ## Bourgas
 
 1. https://www.no13.bg/bg
 2. https://www.luxuryapartments.bg/luxury.html
-
-1. https://albena.bg/bg/maritim-hotel-paradise-blue?gclid=CjwKCAjwwqaGBhBKEiwAMk-FtO-JOm8k-JvjLxSrgReExUvjKeCPhBR8KskuOe5zeDVw6EnWRSCyShoCu3sQAvD_BwE
 
 ## Dunes
 
