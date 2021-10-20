@@ -88,7 +88,7 @@ As it appears [on Facebook](https://www.facebook.com/groups/1719529994935445/per
 
 1. [Astor Garden Hotel](https://astorgardenhotel.com/hotel)
 2. [Hotel Primorski](https://hotelprimorski.com/)
-3. [https://villachinka.com/](Villa Chinka)
+3. [Villa Chinka](https://villachinka.com/)
 4. [Villa Mare Apartments](https://www.apartvillamare.com/)
 
 ## St. Vlas
